@@ -39,7 +39,7 @@ Bu gizlilik politikası zaman zaman güncellenebilir. Değişiklikler bu sayfada
 
 ## İletişim
 
-Sorularınız için: [email adresin buraya]
+Sorularınız için: [erk.enes92@gmail.com]
 
 ---
 
